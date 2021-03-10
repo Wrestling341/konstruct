@@ -1,1 +1,1 @@
-https://wrestling341.github.io/konstruct/
+https://sentinelli.github.io/konstruct/
